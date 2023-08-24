@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Emotional Intelligence in the Workplace](chapter-1-1.md)
   - [Common Misconceptions About Emotional Intelligence](chapter-1-2.md)
   - [Benefits of Developing Emotional Intelligence](chapter-1-3.md)
