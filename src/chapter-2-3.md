@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Emotional Intelligence
-======================================================================================================
 
 In order to develop and improve our emotional intelligence skills, it's important to first assess where we currently stand. This involves understanding our personal approach to emotional intelligence and identifying areas for growth. In this chapter, we will explore some ways to assess your own emotional intelligence.
 

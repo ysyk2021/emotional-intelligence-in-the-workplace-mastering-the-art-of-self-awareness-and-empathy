@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Emotional Intelligence
-===========================================================
 
 Technology has revolutionized many aspects of the workplace, including emotional intelligence. In this chapter, we will explore some ways to leverage technology to improve emotional intelligence skills.
 

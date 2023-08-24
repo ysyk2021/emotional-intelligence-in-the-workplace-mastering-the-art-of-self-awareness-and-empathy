@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-====================================================================================
 
 Fostering a growth mindset is critical for managing resistance to emotional intelligence in the workplace. In this chapter, we will explore strategies for fostering a growth mindset and promoting emotional intelligence development.
 

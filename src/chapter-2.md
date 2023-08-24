@@ -1,5 +1,3 @@
-Chapter 2: Defining Emotional Intelligence
-==========================================
 
 Emotional intelligence is a critical skill for success in the workplace. In this chapter, we will define emotional intelligence, explore its importance, and discuss strategies for assessing personal approaches to emotional intelligence.
 

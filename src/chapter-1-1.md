@@ -1,5 +1,3 @@
-Understanding the Importance of Emotional Intelligence in the Workplace
-================================================================================================
 
 Emotional Intelligence (EI) is becoming increasingly important in the workplace. Research has shown that individuals with high levels of emotional intelligence are more successful in their careers and have better mental health overall. In this chapter, we will explore the importance of emotional intelligence in the workplace.
 

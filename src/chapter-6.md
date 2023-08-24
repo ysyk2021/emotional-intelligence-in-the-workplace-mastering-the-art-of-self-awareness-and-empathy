@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Emotional Intelligence Skills
-========================================================
 
 Developing emotional intelligence skills is a continuous process that requires commitment and effort. In this chapter, we will explore some strategies for developing and mastering emotional intelligence.
 

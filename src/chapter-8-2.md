@@ -1,5 +1,3 @@
-Providing Training and Professional Development Opportunities
-======================================================================================================================
 
 Emotional intelligence skills can be developed and improved over time with practice and training. In order to create a culture of emotional intelligence in the workplace, it is important to provide training and professional development opportunities for employees. In this chapter, we will explore some ways to provide training and professional development opportunities that can help individuals develop their emotional intelligence skills.
 

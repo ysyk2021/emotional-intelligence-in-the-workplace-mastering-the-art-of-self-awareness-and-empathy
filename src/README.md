@@ -1,4 +1,4 @@
-# Introduction
+
 
 Emotional intelligence is a critical skill for success in the workplace. That's where "Emotional Intelligence In The Workplace: Mastering The Art Of Self-Awareness And Empathy" comes in.
 

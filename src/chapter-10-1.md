@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is an essential component of emotional intelligence development. In this chapter, we will explore strategies for tracking progress and measuring results related to emotional intelligence in the workplace.
 

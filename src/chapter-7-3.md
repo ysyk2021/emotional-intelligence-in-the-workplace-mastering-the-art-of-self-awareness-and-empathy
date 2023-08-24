@@ -1,4 +1,3 @@
-# Addressing Fear and Uncertainty
 
 While emotional intelligence (EI) is a critical skill for success in the workplace, many people may resist developing their EI skills. Resistance can arise from fear and uncertainty, as well as a lack of understanding about what emotional intelligence entails. In this chapter, we will explore strategies for managing resistance to emotional intelligence and fostering a culture of openness and growth.
 

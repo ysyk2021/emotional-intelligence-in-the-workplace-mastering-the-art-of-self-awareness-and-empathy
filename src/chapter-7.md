@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Emotional Intelligence
-========================================================
 
 While emotional intelligence can provide numerous benefits in the workplace, it is not uncommon for individuals or organizations to resist developing and improving their emotional intelligence skills. In this chapter, we will explore some common sources of resistance to emotional intelligence and strategies for overcoming them.
 

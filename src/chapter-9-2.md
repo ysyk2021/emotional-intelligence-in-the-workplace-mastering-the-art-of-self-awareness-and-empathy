@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Emotional Intelligence Experience
-===============================================================================================================================
 
 Technology has revolutionized the way we work and communicate, and it can also be a powerful tool for developing and improving emotional intelligence. In this chapter, we will explore some ways to use technology to enhance your emotional intelligence experience.
 

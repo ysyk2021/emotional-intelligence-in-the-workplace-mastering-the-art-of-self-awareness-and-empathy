@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Emotional Intelligence Skills
-========================================================
 
 Developing and improving emotional intelligence skills can lead to greater success and satisfaction in both personal and professional settings. In this chapter, we will explore some ways to maximize your emotional intelligence skills.
 

@@ -1,5 +1,3 @@
-Celebrating Emotional Intelligence-Based Achievements
-==============================================================================================================
 
 Creating a culture of emotional intelligence in the workplace involves more than just developing and improving individual emotional intelligence skills. It also involves celebrating and promoting emotional intelligence-based achievements. In this chapter, we will explore how celebrating emotional intelligence-based achievements can contribute to creating a culture of emotional intelligence.
 

@@ -1,5 +1,3 @@
-Encouraging Proactive Emotional Intelligence Across the Organization
-=============================================================================================================================
 
 Developing emotional intelligence skills is not just an individual endeavor, but also requires a supportive culture within the organization. In this chapter, we will explore some ways to create a culture of emotional intelligence and encourage proactive emotional intelligence across the organization.
 

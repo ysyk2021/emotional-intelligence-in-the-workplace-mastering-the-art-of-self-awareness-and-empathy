@@ -1,5 +1,3 @@
-Benefits of Developing Emotional Intelligence
-======================================================================
 
 Emotional Intelligence (EI) is becoming increasingly important in the workplace. Research has shown that individuals with high levels of emotional intelligence are more successful in their careers and have better mental health overall. In this chapter, we will explore some of the benefits of developing emotional intelligence in the workplace.
 

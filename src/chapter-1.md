@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Emotional intelligence is a critical skill that can help individuals achieve greater overall success and satisfaction in the workplace. In this chapter, we will explore the importance of emotional intelligence, common misconceptions about emotional intelligence, and the benefits of developing emotional intelligence.
 

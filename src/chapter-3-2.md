@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=======================================================================================================
 
 Developing an emotional intelligence mindset is essential for success in the workplace. In this chapter, we will explore strategies for utilizing positive self-talk and visualization to develop an emotional intelligence mindset.
 

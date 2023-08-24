@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-====================================================================================================
 
 Technology has the potential to enhance emotional intelligence skills, but it is also essential to ensure that these benefits are accessible to all individuals. In this chapter, we will explore strategies for leveraging technology to foster accessibility and inclusivity in emotional intelligence development.
 

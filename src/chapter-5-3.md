@@ -1,5 +1,3 @@
-Communicating Effectively
-===================================================================================
 
 Effective communication is a critical component of emotional intelligence. It involves not only being able to express oneself clearly and concisely, but also being able to understand and respond to the emotions of others. In this chapter, we will explore some ways to maximize your emotional intelligence skills when it comes to communicating effectively in the workplace.
 

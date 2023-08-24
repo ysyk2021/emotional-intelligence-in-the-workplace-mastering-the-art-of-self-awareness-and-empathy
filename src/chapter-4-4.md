@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-=========================================================================================
 
 Addressing limiting beliefs is essential for understanding the power of emotional intelligence in the workplace. In this chapter, we will explore strategies for addressing limiting beliefs related to emotional intelligence.
 

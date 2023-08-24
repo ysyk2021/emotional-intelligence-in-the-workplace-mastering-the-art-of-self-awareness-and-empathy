@@ -1,5 +1,3 @@
-The Benefits of Focusing on Emotional Intelligence
-================================================================================================================
 
 Emotional intelligence is a critical component of success in the workplace. In this chapter, we will explore the benefits of focusing on emotional intelligence.
 

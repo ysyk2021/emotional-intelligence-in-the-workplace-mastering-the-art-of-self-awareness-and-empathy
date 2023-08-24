@@ -1,5 +1,3 @@
-Analyzing the Impact of Emotional Intelligence on Individuals and Organizations
-=============================================================================================================================================
 
 Understanding the power of emotional intelligence is critical for individuals and organizations to achieve success in the workplace. In this chapter, we will analyze the impact of emotional intelligence on individuals and organizations.
 

@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-=========================================================================================
 
 Utilizing feedback and coaching is an effective way to develop your emotional intelligence skills in the workplace. In this chapter, we will explore strategies for utilizing feedback and coaching to improve emotional intelligence.
 

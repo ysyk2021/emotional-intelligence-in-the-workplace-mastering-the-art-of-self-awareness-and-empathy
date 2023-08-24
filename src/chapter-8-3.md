@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-===================================================================================================
 
 Fostering a culture of emotional intelligence in the workplace can lead to greater success and satisfaction for both individuals and the organization as a whole. In this chapter, we will explore how fostering knowledge sharing and mentorship can contribute to creating a culture of emotional intelligence.
 

@@ -1,5 +1,3 @@
-Recognizing How Emotional Intelligence Contributes to Success
-===========================================================================================================================
 
 Emotional intelligence is a critical component of success in the workplace. In this chapter, we will explore the power of emotional intelligence and how it contributes to overall success.
 

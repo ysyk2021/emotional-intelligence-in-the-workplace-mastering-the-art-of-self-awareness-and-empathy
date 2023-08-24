@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Emotional Intelligence
-=========================================================================================================================
 
 Developing empathy and compassion is a critical component of emotional intelligence, particularly in the workplace. In this chapter, we will explore strategies for developing empathy and compassion through emotional intelligence.
 

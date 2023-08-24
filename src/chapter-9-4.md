@@ -1,5 +1,3 @@
-Avoiding Information Overload
-==========================================================================================
 
 As technology continues to play an increasingly important role in the workplace, it is essential that individuals and organizations leverage technology effectively to support emotional intelligence. In this chapter, we will explore how technology can be used to enhance emotional intelligence skills while avoiding information overload.
 

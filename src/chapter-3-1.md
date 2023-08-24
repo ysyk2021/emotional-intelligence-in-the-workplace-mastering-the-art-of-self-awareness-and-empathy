@@ -1,5 +1,3 @@
-Techniques for Cultivating an Emotional Intelligence Mindset
-=====================================================================================================================
 
 Cultivating an emotional intelligence mindset is essential for success in the workplace. In this chapter, we will explore techniques for developing an emotional intelligence mindset.
 

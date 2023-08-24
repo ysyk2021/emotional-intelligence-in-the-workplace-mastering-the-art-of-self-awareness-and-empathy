@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================
 
 Emotional intelligence is not a fixed trait, but rather something that can be continuously developed and improved through practice and learning. In this chapter, we will explore some ways to engage in continuous learning and improvement when it comes to emotional intelligence.
 

@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Emotional Intelligence
-=======================================================
 
 Creating a culture of emotional intelligence in the workplace can lead to greater success and satisfaction for both individuals and the organization as a whole. In this chapter, we will explore some ways to create a culture of emotional intelligence.
 

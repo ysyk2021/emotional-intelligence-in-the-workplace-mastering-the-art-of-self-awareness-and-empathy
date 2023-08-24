@@ -1,5 +1,3 @@
-Finding Ways to Develop Self-Awareness and Empathy
-============================================================================================================
 
 Developing self-awareness and empathy is essential for maximizing emotional intelligence skills in the workplace. In this chapter, we will explore strategies for finding ways to develop self-awareness and empathy.
 

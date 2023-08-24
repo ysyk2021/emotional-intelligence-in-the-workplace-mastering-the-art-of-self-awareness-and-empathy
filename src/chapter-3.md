@@ -1,5 +1,3 @@
-Chapter 3: Developing an Emotional Intelligence Mindset
-=======================================================
 
 Developing an emotional intelligence mindset is a crucial step towards mastering the art of self-awareness and empathy in the workplace. In this chapter, we will explore some techniques for cultivating an emotional intelligence mindset.
 

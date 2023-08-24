@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Emotional Intelligence
-============================================================================================================================
 
 While emotional intelligence is critical for success in the workplace, there may be resistance to its development. In this chapter, we will explore common sources of resistance to emotional intelligence and strategies for managing this resistance.
 

@@ -1,5 +1,3 @@
-Identifying Emotional Intelligence Technologies and Resources
-==========================================================================================================================
 
 Technology can be a valuable tool for developing and improving emotional intelligence skills. In this chapter, we will explore some technologies and resources that individuals can use to enhance their emotional intelligence experience.
 

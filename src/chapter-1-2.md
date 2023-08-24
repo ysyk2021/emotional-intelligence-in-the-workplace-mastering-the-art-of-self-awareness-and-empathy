@@ -1,5 +1,3 @@
-Common Misconceptions About Emotional Intelligence
-===========================================================================
 
 Emotional intelligence (EI) is a term that has gained widespread attention in recent years, but there are still many misconceptions about what it really means. In this chapter, we will explore some common misconceptions about emotional intelligence.
 

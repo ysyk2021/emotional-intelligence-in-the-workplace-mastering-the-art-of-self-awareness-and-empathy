@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-=========================================================================================================
 
 Managing resistance to emotional intelligence is essential for promoting a culture of growth and improvement in the workplace. In this chapter, we will explore strategies for overcoming resistance to emotional intelligence.
 

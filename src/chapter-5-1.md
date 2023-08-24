@@ -1,5 +1,3 @@
-Identifying Opportunities for Developing Emotional Intelligence
-=========================================================================================================================
 
 Maximizing your emotional intelligence skills is essential for success in the workplace. In this chapter, we will explore strategies for identifying opportunities for developing emotional intelligence.
 

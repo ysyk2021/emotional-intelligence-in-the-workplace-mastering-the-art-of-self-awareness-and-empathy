@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 In order to continue developing and improving emotional intelligence skills, it's important to track progress, reflect on experiences, and adapt to changes in the workplace. In this chapter, we will explore some ways to measure results and learn from experience when it comes to emotional intelligence.
 

@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===============================================================================================
 
 Developing an emotional intelligence mindset is essential for success in the workplace. In this chapter, we will explore strategies for setting realistic goals and objectives related to emotional intelligence development.
 

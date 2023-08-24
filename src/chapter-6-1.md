@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Emotional Intelligence
-==========================================================================================================================
 
 Developing your emotional intelligence skills is essential for success in the workplace. In this chapter, we will explore the principles of effective emotional intelligence and provide strategies for developing emotional intelligence skills.
 

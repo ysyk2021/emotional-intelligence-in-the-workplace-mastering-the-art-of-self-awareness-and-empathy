@@ -1,5 +1,3 @@
-Overview of Emotional Intelligence
-==============================================================================
 
 Emotional Intelligence (EI) is a term used to describe a set of skills and abilities that help individuals understand, manage, and express their emotions. It also includes the ability to perceive and respond to the emotions of others, which is critical for effective communication and building strong relationships.
 
