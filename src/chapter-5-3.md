@@ -1,5 +1,4 @@
-Chapter 6: Communicating Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is at the heart of emotional intelligence (EI) in the workplace. In this chapter, we will delve into the importance of communication skills and how they contribute to mastering the art of self-awareness and empathy.
 

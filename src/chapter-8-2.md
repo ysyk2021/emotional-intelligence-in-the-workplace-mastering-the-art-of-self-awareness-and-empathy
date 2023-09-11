@@ -1,5 +1,4 @@
-Chapter 5: Providing Training and Professional Development Opportunities
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of offering training and professional development opportunities to foster emotional intelligence in the workplace. Investing in employee growth and skill development is crucial for mastering the art of self-awareness and empathy.
 

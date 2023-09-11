@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Personal Approach to Emotional Intelligence
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will guide you through the process of assessing your current level of emotional intelligence (EI) and gaining insights into your strengths and areas for improvement. Self-assessment is a crucial first step towards mastering the art of self-awareness and empathy in the workplace.
 

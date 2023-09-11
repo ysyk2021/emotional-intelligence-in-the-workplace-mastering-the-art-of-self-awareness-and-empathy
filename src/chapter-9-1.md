@@ -1,5 +1,4 @@
-Chapter 3: Identifying Emotional Intelligence Technologies and Resources
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various technologies and resources available for enhancing emotional intelligence in the workplace. Understanding and utilizing these tools can significantly contribute to mastering the art of self-awareness and empathy.
 

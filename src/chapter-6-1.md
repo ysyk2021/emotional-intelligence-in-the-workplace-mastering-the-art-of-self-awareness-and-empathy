@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Principles of Effective Emotional Intelligence
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the fundamental principles that underpin the mastery of emotional intelligence (EI) in the workplace. Developing and applying EI is a crucial skill for fostering self-awareness and empathy, which are essential in building strong relationships and achieving success in professional settings.
 

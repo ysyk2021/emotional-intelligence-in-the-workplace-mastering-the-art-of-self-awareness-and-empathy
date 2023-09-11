@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Science Behind Effective Emotional Intelligence
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind emotional intelligence (EI) and how it influences our thoughts, behaviors, and interactions in the workplace. A deeper understanding of the neurological and psychological foundations of EI can enhance our ability to master the art of self-awareness and empathy.
 

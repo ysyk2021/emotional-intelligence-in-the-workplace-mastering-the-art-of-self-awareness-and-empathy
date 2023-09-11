@@ -1,5 +1,4 @@
-Chapter 10: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the pivotal role of continuous learning and improvement in the context of mastering emotional intelligence (EI) in the workplace. The journey to EI mastery is a dynamic one, and it requires a commitment to ongoing growth and development. By embracing the principles of lifelong learning and self-improvement, you can unlock your full potential and cultivate a culture of emotional intelligence within your professional life.
 

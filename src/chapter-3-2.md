@@ -1,5 +1,4 @@
-Chapter 8: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the transformative power of positive self-talk and visualization techniques in enhancing emotional intelligence and fostering personal and professional growth. By harnessing the potential of these tools, you can elevate your self-awareness, strengthen your emotional resilience, and achieve your career aspirations with greater clarity and confidence.
 

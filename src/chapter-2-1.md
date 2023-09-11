@@ -1,5 +1,4 @@
-Chapter 1: Overview of Emotional Intelligence
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Emotional intelligence (EI) is a foundational concept that plays a pivotal role in the success of individuals and organizations in the modern workplace. This chapter provides an in-depth overview of emotional intelligence, its significance, and how it forms the bedrock for mastering the art of self-awareness and empathy in professional settings.
 

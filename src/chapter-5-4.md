@@ -1,5 +1,4 @@
-Chapter 6: Fostering Trust and Respect
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's rapidly evolving workplace, the importance of cultivating an environment steeped in trust and respect cannot be overstated. This chapter dives deep into the ways emotional intelligence (EI) plays a pivotal role in nurturing these crucial elements, fostering not only individual success but also a harmonious and productive team dynamic.
 

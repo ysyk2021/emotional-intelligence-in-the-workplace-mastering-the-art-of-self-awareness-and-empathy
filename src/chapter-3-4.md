@@ -1,5 +1,4 @@
-Chapter 4: Developing Empathy and Compassion Through Emotional Intelligence
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of empathy and compassion in the workplace and how emotional intelligence can be harnessed to cultivate these essential qualities. Developing empathy and compassion is not only beneficial for your own personal growth but also for fostering healthier relationships and a more positive work environment.
 

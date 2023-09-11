@@ -1,5 +1,4 @@
-Chapter 6: Encouraging Proactive Emotional Intelligence Across the Organization
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for fostering proactive emotional intelligence throughout the entire organization. Creating a culture of emotional intelligence is essential for mastering the art of self-awareness and empathy in the workplace.
 

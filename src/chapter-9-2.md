@@ -1,5 +1,4 @@
-Chapter 4: Using Technology to Enhance Your Emotional Intelligence Experience
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the ways technology can be harnessed to improve your journey in mastering the art of self-awareness and empathy within the workplace. Technology offers innovative solutions to enhance emotional intelligence development.
 
